@@ -576,8 +576,14 @@ Relative position for absolute caption
 4 # UNiVERSE#######################################SEVYN##
 ```
 <img src="https://media.self.com/photos/5991ee1fdc7f316973d3f403/master/pass/sevyn-streeter-1.jpg" alt="##SEVYN_IS_MY_WIFE">
+<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_SEVYN/999c5735f26c909e9e7b9454909e7ca3d00f6c5e/assets/images/Untitled.png">
+
 ## How to play games in the Internet Arcade
+
 [HOW_TO_PLAY_THESE_AWESOME_GAMES - TUTORiAL_HERE##CLiCK](https://armchairarcade.com/perspectives/2014/11/06/quick-guide-on-how-to-play-on-the-internet-arcade/)
+<img src="http://adb.arcadeitalia.net/media/mame.current/marquees/paperboy.png">
+
+<iframe src="https://archive.org/embed/arcade_paperboy" width="100%" height="450" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 
 <p class="codepen" data-height="300" data-theme-id="dark" data-default-tab="html,result" data-slug-hash="bGvjMEe" data-editable="true" data-user="web-dot-dev" style="height: 300px; box-sizing: border-box; display: flex; align-items: center; justify-content: center; border: 2px solid; margin: 1em 0; padding: 1em;">
   <span>See the Pen <a href="https://codepen.io/web-dot-dev/pen/bGvjMEe">
