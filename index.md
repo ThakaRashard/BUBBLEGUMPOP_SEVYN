@@ -575,6 +575,26 @@ Relative position for absolute caption
 3 # ANOTHER###############################################
 4 # UNiVERSE#######################################SEVYN##
 ```
+# Jekyll_Headings
+
+<hr>
+# HEADiNG1
+## HEADinG2
+### HEADiNG3
+#### HEADinG4
+##### HEADiNG5
+###### HEADiNG6
+<hr>
+
+# HTML_HEADiNGS
+<h1>Heading 1</h1>
+<h2>Heading 2</h2>
+<h3>Heading 3</h3>
+<h4>Heading 4</h4>
+<h5>Heading 5</h5>
+<h6>Heading 6</h6>
+
+<hr>
 <p class="codepen" data-height="300" data-default-tab="html,result" data-slug-hash="vYLZYqQ" data-editable="true" data-user="bhadupranjal" style="height: 300px; box-sizing: border-box; display: flex; align-items: center; justify-content: center; border: 2px solid; margin: 1em 0; padding: 1em;">
   <span>See the Pen <a href="https://codepen.io/bhadupranjal/pen/vYLZYqQ">
   Glowing buttons</a> by Pranjal Bhadu (<a href="https://codepen.io/bhadupranjal">@bhadupranjal</a>)
