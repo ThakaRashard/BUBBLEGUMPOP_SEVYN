@@ -575,6 +575,12 @@ Relative position for absolute caption
 3 # ANOTHER###############################################
 4 # UNiVERSE#######################################SEVYN##
 ```
+<p class="codepen" data-height="300" data-default-tab="html,result" data-slug-hash="vYLZYqQ" data-editable="true" data-user="bhadupranjal" style="height: 300px; box-sizing: border-box; display: flex; align-items: center; justify-content: center; border: 2px solid; margin: 1em 0; padding: 1em;">
+  <span>See the Pen <a href="https://codepen.io/bhadupranjal/pen/vYLZYqQ">
+  Glowing buttons</a> by Pranjal Bhadu (<a href="https://codepen.io/bhadupranjal">@bhadupranjal</a>)
+  on <a href="https://codepen.io">CodePen</a>.</span>
+</p>
+<script async src="https://cpwebassets.codepen.io/assets/embed/ei.js"></script>
 <img src="https://media.self.com/photos/5991ee1fdc7f316973d3f403/master/pass/sevyn-streeter-1.jpg" alt="##SEVYN_IS_MY_WIFE">
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_SEVYN/999c5735f26c909e9e7b9454909e7ca3d00f6c5e/assets/images/Untitled.png">
 
