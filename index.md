@@ -568,13 +568,58 @@ Relative position for absolute caption
 
 ## Hole To Another Universe
 
-## DEAR_SAAATU##OH_HOW_I_MISS_YOU ##
+
 ```
 1 # HOLE_TO_ANOTHER_UNiVERSE##############################
 2 # TO####################################################
 3 # ANOTHER###############################################
-4 # UNiVERSE##############################################
+4 # UNiVERSE#######################################SEVYN##
 ```
+<img src="https://media.self.com/photos/5991ee1fdc7f316973d3f403/master/pass/sevyn-streeter-1.jpg" alt="##SEVYN_IS_MY_WIFE">
+## How to play games in the Internet Arcade
+	
+![AMON_TOBIN_SOLID_STEEL](https://ninjatune.net/images/releases/solid-steel-presents-amon-tobin-main.jpg)
+![AMON_TOBIN##PERMUTATION##](https://f4.bcbits.com/img/a1983715436_10.jpg)
+[DOWNLOAD_AMON_TOBIN_PERMUTATION_FROM_BANDCAMP](https://music.amontobin.com/album/permutation)
+[Spiderman Cartoon-1967 Season 1 Episode 19]([https://youtu.be/aBzotaBgoRo)
+[DELiRiUM:BY::##ELLiE_GOULDING## ##FAV_TRACK## ## ](https://youtu.be/cLWv0f2Tt8E) 
+[DiSCOGS:##ENTRY](https://www.discogs.com/release/8118343-Ellie-Goulding-Delirium)
+## #ZEXOR_WAS_MURDERED_LOOKiNG_FOR_HiS_FAMiLY
+https://forum.12ozprophet.com/topic/88098-rip-zexor/
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/AT-Km8ToCGU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<a href="https://www.youtube.com/c/TapeDeckWreck" target="_blank"> <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/Capture.PNG" alt="##BUBBLEGUM_POP##IS_HERE_TO_STAY" > </a>	
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_cluster/bd_cluster_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_aquatico/bd_aquatico_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_supper/bd_supper_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_supper/bd_supper_example5.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_apotheke/bd_apotheke_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_rainbow/bd_rainbow_example3.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_rainbow/bd_rainbow_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_car.jpg?itok=fr33wXWz" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_grave.jpg?itok=zKHQ2_XK" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_demo_tshirt2.jpg?itok=Z-FDybri" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_demonstration.jpg?itok=CyDRb7ye" /> </a>
+![NiRVANA_i_APOLOGiZE](https://pbs.twimg.com/media/ELGYaVYUUAIpygF?format=jpg&name=small)
+[CSS Hovers and Rollovers](https://accessibility.psu.edu/css/rollovers/)
+[Law – Unreleased Jungle Selection](https://www.youtube.com/watch?v=h7T8br7jO80)
+[DJ SHARPEY presents, Route Into Darkness - Jungle DNB Mix | 1994 1995 | Vinyl Only](https://www.youtube.com/watch?v=VspuYfZcjQ4)
+[1994 - 2004 Jungle / Drum & Bass Old Skool Mix (Mickey Beam)](https://www.youtube.com/watch?v=PCXuCLbFGo4)
+[HOW_TO_PLAY_THESE_AWESOME_GAMES - TUTORiAL_HERE##CLiCK](https://armchairarcade.com/perspectives/2014/11/06/quick-guide-on-how-to-play-on-the-internet-arcade/)
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1006480420&color=%23607064&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/theclassicmixcdseries" title="The Classic Mix CD Series" target="_blank" style="color: #cccccc; text-decoration: none;">The Classic Mix CD Series</a> · <a href="https://soundcloud.com/theclassicmixcdseries/dj-food-dk-now-listen" title="785 - Solid Steel pres. DJ Food &amp; DK - Now, Listen! (2001)" target="_blank" style="color: #cccccc; text-decoration: none;">785 - Solid Steel pres. DJ Food &amp; DK - Now, Listen! (2001)</a></div>
+<img src="https://cdn.wionews.com/sites/default/files/styles/story_page/public/2021/03/17/187670-untitled-design-34.jpg" alt="Me_and_Sevyn_ENERGY">
+<img src="https://www.goodnewsnetwork.org/wp-content/uploads/2021/04/juno-nasa-jpl-caltech-swri-msss-brian-swift.jpg">
+<img src="https://api.time.com/wp-content/uploads/2017/05/nasa-juno-mission-jupiter.jpg" alt="Erika_RulingPlanet_IS_JUPITER">
+<img src="https://d2xkkdgjnsfvb0.cloudfront.net/Vault/Thumb?VaultID=36050&Interlaced=1&Mode=R&ResX=960&OutputFormat=jpg&Quality=75&ts=1656511106">
+<img src="https://cdn.kqed.org/wp-content/uploads/sites/35/2021/01/image_5608_2e-Jupiter-NASA-JPL-Caltech-SwRI-MSSS-David-Marriott-1020x628.jpg">
+
+<iframe width="100%" height="480" src="https://www.youtube.com/embed/4uMLVRWwEg8" title="Young Man's Fancy (1952)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+[How Our Organization Improved Web Accessibility (Case Study)](https://www.smashingmagazine.com/2022/08/organization-improved-web-accessibility-case-study/)
+
+
+  <a href="https://youtu.be/DFMEBquxeO8" target="_blank"><img src="https://www.typedifferent.com/fonts/bd_rainbow/bd_rainbow_example1.jpg" /> </a>
+
+
 <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/Screenshot%202022-07-10%204.21.33%20AM.png">
 <img src="https://www.adbranch.com/wp-content/uploads/chrysler_dodge_charger_1970-610x307.jpg">
 <div class='twoPanelSpread'>
@@ -591,6 +636,173 @@ Relative position for absolute caption
     </div>
   </div>
 </div>	
+  {% highlight ruby %}
+  1 # HOLE_TO_ANOTHER_UNiVERSE##############################
+  2 # TO####################################################
+  3 # ANOTHER###############################################
+  4 # UNiVERSE##############################################
+  {% endhighlight %}
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/pZ7Cc-OVTGg" title="YouTube video player" frameborder="0" allowfullscreen></iframe>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/8BCwDA67CqY" title="YouTube video player" frameborder="0" allowfullscreen></iframe>
+ <a href="http://www.wefunkradio.com/"> #### TUNE_IN --> WeFunK_RADIO ##STREAMING## </a>
+<a href="http://www.wefunkradio.com/show/498/play_aa"> WeFunk_RADIO_BACK_EPISODE  EPISODE_498 </a>
+<a href="https://slate.com/technology/2017/03/did-the-cia-really-astrally-project-to-mars-in-1984.html">##DID_THE_CIA##ASTRAL_PROJECT_TO_MARS</a>
+<a href="https://comicbook.com/irl/news/cia-documents-leak-extrasensory-perception-mind-telepathy-reveal/">##EXTRA_SENSORY_PERCEPTION##</a>
+<a href="https://www.vice.com/en/article/7k9qag/how-to-escape-the-confines-of-time-and-space-according-to-the-cia">##RAVEN_AT_VICE_KNOWS_PSYCHIC_SHIT##</a>
+<a href="https://www.nsa.gov/portals/75/documents/news-features/declassified-documents/cryptologs/cryptolog_85.pdf">##NSA_TYPESHIT_wit_DAH_SOViETS</a>
+<a href="https://jamesaconrad.com/TK/US-government-interest-in-telekinesis-and-psychokinesis.html">##PSYCHIC_ARMY##ALEX_JONES_and_DAVID_ICK_KNOW_ALL_ABOUT_IT</a>
+<a href="https://youtu.be/tWpQNexUZUQ">##LETHAL_ENFORCERS_2##GUN_FIGHTERS##</a><a href="https://youtu.be/6nwA8oPkaSg">##FORZA5_STi</a><a href="https://www.youtube.com/embed/O9MIvIVWq3E">##SQUARE_ENIX_KNOWS_THAKA_WANTS##A_DRIVING_GAME##</a> <a href="https://en.wikipedia.org/wiki/Stargate_Project">##STARGATE_PROJECT##</a>
+<a href="https://www.californiapsychics.com/blog/psychic-tools-abilities/benefits-reading-remote-viewing-psychic.html">The Benefits of Reading with a Remote Viewing Psychic</a><a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000700620001-2.pdf">##PARAPSYCHOLOGY_COMMUNiCATiON_BARRiERS</a>
+<a href="https://www.gaia.com/article/what-is-remote-viewing">What is Remote Viewing?</a>
+<a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00787R000200080050-9.pdf">##TELEPATHY_COULD_BE_REAL##</a> <a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000300420008-1.pdf"> ##PSYCHIC_MAGNIFICATION## </a><a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00789R003300190006-0.pdf">##NONiNVASiVE_BRAiN_WORK##</a>
+<a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000400030001-0.pdf"> EXPERIMENTAL DREAM TELEPATHY-CLAIRVOYANCE AND GEOMAGNETIC ACTIVITY (MICHAEL PERSINGER) </a> <a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00787R000300180001-1.pdf"> ##EFFORTS_TO_IMPROVE_REMOTE_VIEWING##</a>
+<a href="https://www.cia.gov/readingroom/docs/NSA-RDP96X00790R000100040012-1.pdf"> ##TELEKINESIS## </a>
+<a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000400100005-8.pdf"> PARAPSYCHOLOGY ##THE_ANGLOS_-->VS<--_THE_LATiNS##</a>
+<a href="https://www.cia.gov/readingroom/freedom-information-act-5-usc-%C2%A7552"> 
+  
+  
+  ---
+  layout: default
+  ---
+
+  Text can be **bold**, _italic_, ~~strikethrough~~ or `keyword`.
+
+  [Link to another page](./another-page.html).
+
+  There should be whitespace between paragraphs.
+
+  There should be whitespace between paragraphs. We recommend including a README, or a file with information about your project.
+
+  # Header 1
+
+  This is a normal paragraph following a header. GitHub is a code hosting platform for version control and collaboration. It lets you and others work together on projects from anywhere.
+
+  ## Header 2
+
+  > This is a blockquote following a header.
+  >
+  > When something is important enough, you do it even if the odds are not in your favor.
+
+  ### Header 3
+
+  ```js
+  // Javascript code with syntax highlighting.
+  var fun = function lang(l) {
+  dateformat.i18n = require('./lang/' + l)
+  return true;
+  }
+  ```
+
+  ```ruby
+  # Ruby code with syntax highlighting
+  GitHubPages::Dependencies.gems.each do |gem, version|
+  s.add_dependency(gem, "= #{version}")
+  end
+  ```
+
+  #### Header 4
+
+  * This is an unordered list following a header.
+  * This is an unordered list following a header.
+  * This is an unordered list following a header.
+
+  ##### Header 5
+
+  1. This is an ordered list following a header.
+  2. This is an ordered list following a header.
+  3. This is an ordered list following a header.
+
+  ###### Header 6
+
+  | head1 | head two | three |
+  |:-------------|:------------------|:------|
+  | ok | good swedish fish | nice |
+  | out of stock | good and plenty | nice |
+  | ok | good `oreos` | hmm |
+  | ok | good `zoute` drop | yumm |
+
+  ### There's a horizontal rule below this.
+
+  * * *
+
+  ### Here is an unordered list:
+
+  * Item foo
+  * Item bar
+  * Item baz
+  * Item zip
+
+  ### And an ordered list:
+
+  1. Item one
+  1. Item two
+  1. Item three
+  1. Item four
+
+  ### And a nested list:
+
+  - level 1 item
+  - level 2 item
+  - level 2 item
+  - level 3 item
+  - level 3 item
+  - level 1 item
+  - level 2 item
+  - level 2 item
+  - level 2 item
+  - level 1 item
+  - level 2 item
+  - level 2 item
+  - level 1 item
+
+  ### Small image
+
+  ![Octocat](https://github.githubassets.com/images/icons/emoji/octocat.png)
+
+  ### Large image
+
+  ![Branching](https://guides.github.com/activities/hello-world/branching.png)
+
+  ### Definition lists can be used with HTML syntax.
+
+  <dl>
+    <dt>Name</dt>
+    <dd>Godzilla</dd>
+    <dt>Born</dt>
+    <dd>1952</dd>
+    <dt>Birthplace</dt>
+    <dd>Japan</dd>
+    <dt>Color</dt>
+    <dd>Green</dd>
+  </dl>
+
+  ```
+  Long, single-line code blocks should not wrap. They should horizontally scroll if they are too long. This line should be long enough to demonstrate this.
+  ```
+
+  ```
+  The final elemenT.
+  ```
+
+>>>>>>> c3f5f937a168763fa77dd9a9990a105d3351f975
+
+<div class="pinupGallery">
+  <img class="pinupImage featured-pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
+  <img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
+  <img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
+  <img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
+</div>
+<div class="flex-container">
+   
+    <div class="item1">                        <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SartUBreast_inTOXiCATE_Me.gif" /></div>
+    <div class="item2">                        <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SartUBreast_inTOXiCATE_Me.gif" /></div>
+    <div class="item3">                        <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SartUBreast_inTOXiCATE_Me.gif" /></div>
+</div>
+[CSS performance optimization](https://developer.mozilla.org/en-US/docs/Learn/Performance/CSS)
+[HTML_CSS_RENDERiNG_PERFORMANCE_BASiCS](https://developer.mozilla.org/en-US/docs/Web/Performance/Fundamentals)
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/643348296&color=%2312bad0&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+[FoNT_FALLBACK](https://medium.com/swlh/full-text-styling-with-a-single-line-of-css-838e8c666f4d)
+
 <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/I_HAVE_NOT_LOGGED_IN_IN_OVER_TWO_WEEKS.PNG">	
 <p>  <span class="firstcharacter">PiNTEREST LocksOutFATHERS"</span> 
 It has been over two weeks since I have logged in. I found Sartu, my kidnapped wife from Ethiopia via ##ALPHARETTA. The previous time I found her she exclaimed "That's My Husband!!", and the captors refused to let her go. Im at a point in my life where I have gathered my life partners. The truth is that is too much power. I went to ##DANCE411 in Atlanta for sometime between parenting, working as a ##DevOps_ENGiNEER, and ##JiUJiTSU. A group of women that are blowing up the RnB Chitlin_Circuit of today chose me as thier dance husband... My from my understanding 4th cousin Muna and 8th cousin Sartu from ##ETHiO_SOMOLiA and about 10 other women decided we would start a business to support our artistic endevors and care for our children. They were all kidnapped with our children and sold into a ##PROSTiTUTION_MARKET_in_SOUTHERN_CALiFORNiA... We have relationships outdoors, but the pimps rape them systematically for use in a global ##SEX_TOURiSM_TRADE. The Human traffickers stole and steal everything I reaccquire to get on the internet. And when I travel to use computers at local librays in #LOS_ANGELES_COUNTY, I am severely stalked, attacked, poisoned with chemical weapons and randomly aharrassed. I was using pinterest to serve up internet content for our large families spiritual needs. Those of us from Africa are Muslims, and we had a semi-healthy stint with Jehovahs Witnesses. So we are a very spiritually minded family. However many of the pimps are anti god that we are dealing with... People on the late night show and everything are involved. Long story short.. Pinterest was our watering hole. I could post content bulletin board #style, and interact with my wives and children in passing as we wait for my old job JPL to step in   the CIA/FBi/US_MARSHALLS and other services in law enforcement has helped us contact since Erikas dissapearance was taken in by the ##DEKALB_COUNTY_SHRIFFs office and they told me to post constantly to stay visible... People dissapear when the dont post in this era of ##ECONOMIC_ASSASINATION_of_FATHERS_FOR_THE_PURPOSE_OF_PROSTITUTITUING_HEALTHY_FAMiLiES
@@ -599,16 +811,7 @@ It has been over two weeks since I have logged in. I found Sartu, my kidnapped w
 
 </p>
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/596188557&color=%236c5c34&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
-[CSS performance optimization](https://developer.mozilla.org/en-US/docs/Learn/Performance/CSS)
-[HTML_CSS_RENDERiNG_PERFORMANCE_BASiCS](https://developer.mozilla.org/en-US/docs/Web/Performance/Fundamentals)
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/643348296&color=%2312bad0&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
-[FoNT_FALLBACK](https://medium.com/swlh/full-text-styling-with-a-single-line-of-css-838e8c666f4d)
-<div class="flex-container">
-   
-    <div class="item1">                        <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SartUBreast_inTOXiCATE_Me.gif" /></div>
-    <div class="item2">                        <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SartUBreast_inTOXiCATE_Me.gif" /></div>
-    <div class="item3">                        <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SartUBreast_inTOXiCATE_Me.gif" /></div>
-</div>
+
 <iframe src="https://gcp-embeds.datpiff.com/mixtape/1021737/" width="100%" height="270" frameborder="0"></iframe>
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1202841862&color=%23211f21&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/293177372&color=%23a09c94&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
@@ -707,12 +910,7 @@ I rocked this Burner(Freestyle)...for a lil' homie who was Murdered (2005) by th
  </div>
 </div>
 <img src="https://assets.vogue.com/photos/5f9089a160138c079b7b38d5/16:9/w_1280,c_limit/00_social.jpg">
-<div class="pinupGallery">
-  <img class="pinupImage featured-pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
-  <img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
-  <img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
-  <img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
-</div>
+
 <img src="https://im.vsco.co/aws-us-west-2/12f8b0/56497/5fc45a98e1ebb64f08283c25/vsco5fc45a9961d50.jpg" alt="Girl in a jacket" >
 <div class='twoPanelSpread'>
   <div class='row'>
@@ -923,25 +1121,13 @@ but the memory of this event, the photographer speculates, will last much longer
  <img src="https://apod.nasa.gov/apod/image/9701/pillars3_hst.jpg" alt="Girl in a jacket" >
  </div>
  </div>
- </div>
-<a href="https://slate.com/technology/2017/03/did-the-cia-really-astrally-project-to-mars-in-1984.html">##DID_THE_CIA##ASTRAL_PROJECT_TO_MARS</a>
-<a href="https://comicbook.com/irl/news/cia-documents-leak-extrasensory-perception-mind-telepathy-reveal/">##EXTRA_SENSORY_PERCEPTION##</a>
-<a href="https://www.vice.com/en/article/7k9qag/how-to-escape-the-confines-of-time-and-space-according-to-the-cia">##RAVEN_AT_VICE_KNOWS_PSYCHIC_SHIT##</a>
-<a href="https://www.nsa.gov/portals/75/documents/news-features/declassified-documents/cryptologs/cryptolog_85.pdf">##NSA_TYPESHIT_wit_DAH_SOViETS</a>
-<a href="https://jamesaconrad.com/TK/US-government-interest-in-telekinesis-and-psychokinesis.html">##PSYCHIC_ARMY##ALEX_JONES_and_DAVID_ICK_KNOW_ALL_ABOUT_IT</a>
-<a href="https://youtu.be/tWpQNexUZUQ">##LETHAL_ENFORCERS_2##GUN_FIGHTERS##</a><a href="https://youtu.be/6nwA8oPkaSg">##FORZA5_STi</a><a href="https://www.youtube.com/embed/O9MIvIVWq3E">##SQUARE_ENIX_KNOWS_THAKA_WANTS##A_DRIVING_GAME##</a> <a href="https://en.wikipedia.org/wiki/Stargate_Project">##STARGATE_PROJECT##</a>
-<a href="https://www.californiapsychics.com/blog/psychic-tools-abilities/benefits-reading-remote-viewing-psychic.html">The Benefits of Reading with a Remote Viewing Psychic</a><a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000700620001-2.pdf">##PARAPSYCHOLOGY_COMMUNiCATiON_BARRiERS</a>
-<a href="https://www.gaia.com/article/what-is-remote-viewing">What is Remote Viewing?</a>
-<a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00787R000200080050-9.pdf">##TELEPATHY_COULD_BE_REAL##</a> <a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000300420008-1.pdf"> ##PSYCHIC_MAGNIFICATION## </a><a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00789R003300190006-0.pdf">##NONiNVASiVE_BRAiN_WORK##</a>
-<a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000400030001-0.pdf"> EXPERIMENTAL DREAM TELEPATHY-CLAIRVOYANCE AND GEOMAGNETIC ACTIVITY (MICHAEL PERSINGER) </a> <a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00787R000300180001-1.pdf"> ##EFFORTS_TO_IMPROVE_REMOTE_VIEWING##</a>
-<a href="https://www.cia.gov/readingroom/docs/NSA-RDP96X00790R000100040012-1.pdf"> ##TELEKINESIS## </a>
-<a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000400100005-8.pdf"> PARAPSYCHOLOGY ##THE_ANGLOS_-->VS<--_THE_LATiNS##</a>
-<a href="https://www.cia.gov/readingroom/freedom-information-act-5-usc-%C2%A7552"> ##THE_SOCIAL_MEDIA_COMPANIES_VIOLATED##THE_FREEDOM_OF_INFORMATION_ACT_IN_SUPRESSING
- THE_SEARCH_FOR_THAKA_BEKELE_SELASSIE_aka_RASHARD_IMAN_KELLY_AHMEDs_FAMILY##</a>
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/pZ7Cc-OVTGg" title="YouTube video player" frameborder="0" allowfullscreen></iframe>
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/8BCwDA67CqY" title="YouTube video player" frameborder="0" allowfullscreen></iframe>
- <a href="http://www.wefunkradio.com/"> #### TUNE_IN --> WeFunK_RADIO [##STREAMING## </a>
-<a href="http://www.wefunkradio.com/show/498/play_aa"> WeFunk_RADIO_BACK_EPISODE --> EPISODE_498] </a>
+ </div>##THE_SOCIAL_MEDIA_COMPANIES_VIOLATED##THE_FREEDOM_OF_INFORMATION_ACT_IN_SUPRESSING
+ THE_SEARCH_FOR_THAKA_BEKELE_SELASSIE_aka_RASHARD_IMAN_KELLY_AHMEDs_FAMILY##
+	
+	
+	
+	
+	
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/kg3bXR-JyVs" title="YouTube video player" frameborder="0" allowfullscreen></iframe>
 <div>
  <div class='row'>
@@ -990,7 +1176,7 @@ just my view on thangs - Dehejia
 
  </div>
 
-<div class='some-page-wrapper'>
+
  <div class='row'>
  <div class='column'>
  <div class='blue-column'>
@@ -1026,7 +1212,7 @@ Who is wrong in this situation, her assumptions or his free mind state? No bound
 Lets start listening as well as speaking our hearts, instead of painting false pictures of clear situations. Love yourself and your divine mate will apear before your eyes, with no searching involved. But you must me ready physically, mentally, culturally, and spiritually.
 
 just my view on thangs - Dehejia 
-</div>
+
 
 
 <a href="https://board.okayplayer.com/okp.php?az=show_mesg&forum=20&topic_id=7575&mesg_id=7589&page=" >###OKAY_PLAYER_SLUM_VILLAGE_ENTRY_BY_MY_DEPARTED_FRIEND##ALPHONSO_GREGORY##</a>
@@ -1440,10 +1626,6 @@ RUN_DMC had a great run##COLD_CRUSH_BROTHERS_and_OTHER_PiONEERS_STARTED_iT_iN_TH
 ##_SOMEHOW_SOMEWAY_iLL_GET_MY_FAMiLY_BACK_SOMEDAY
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/QSmKOuPZZ9Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-## ##VAN_BODE##HAS_BEEN_ACCEPTED_GLOBALLY##
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/YoNEmhIeckw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
 ## RAPSODY = " Ibtihaj ft. D'Angelo, GZA "
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/jhMk_wLm07E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
@@ -1451,9 +1633,6 @@ RUN_DMC had a great run##COLD_CRUSH_BROTHERS_and_OTHER_PiONEERS_STARTED_iT_iN_TH
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/btYlWphnfbE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe src="https://pixelfed.tokyo/p/THAKA/363094015438763292/embed?caption=false&likes=false&layout=compact" class="pixelfed__embed" style="max-width: 100%; border: 0" width="100%" allowfullscreen="allowfullscreen"></iframe><script async defer src="https://pixelfed.tokyo/embed.js"></script>
 
-
-## 42_DUGG = "YOU_DA_ONE"
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/cnHs-oB2eCM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## CSS_FOR_YOUTUBE_ViDEOS
 {% highlight css %}
@@ -1465,11 +1644,6 @@ Medium.com used to be a domain for spirituality but the Neo_Nazi anti-spirituali
 ## GHOSTFACE_KiLLAH = iRONMAN_1996_WHOL3_4LBUM
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/bCx9Jn8rpG0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-
-## #ZEXOR_WAS_MURDERED_LOOKiNG_FOR_HiS_FAMiLY
-https://forum.12ozprophet.com/topic/88098-rip-zexor/
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/AT-Km8ToCGU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<a href="https://www.youtube.com/c/TapeDeckWreck" target="_blank"> <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/Capture.PNG" alt="##BUBBLEGUM_POP##IS_HERE_TO_STAY" > </a>
 
 <div class='some-page-wrapper'>
  <div class='row'>
@@ -1538,13 +1712,13 @@ https://i.pinimg.com/originals/b1/a5/31/b1a531387792bd946642e80ac2a1487d.jpg
  </div>
  </div>
 </div>
-[Spiderman Cartoon-1967 Season 1 Episode 19]([https://youtu.be/aBzotaBgoRo)
+
+
 [THiNKiNG_OF_YOU##SARTU##ZEE##UNDASTAND_DAH_ZEE_AND_YOU_WILL_INDEED_UNDASTANYND_HUH##](https://youtu.be/9iUE4F9UHok)
 <span class="neonText">
  ##SAATUZEE_WILL_YOU_MARRY_ME?!
 </span>
-[DELiRiUM:BY::##ELLiE_GOULDING## ##FAV_TRACK## ## ](https://youtu.be/cLWv0f2Tt8E) 
-[DiSCOGS:##ENTRY](https://www.discogs.com/release/8118343-Ellie-Goulding-Delirium)
+
 </div>
 <div class='twoPanelSpread'>
   <div class='row'>
@@ -1578,9 +1752,9 @@ https://i.pinimg.com/originals/b1/a5/31/b1a531387792bd946642e80ac2a1487d.jpg
     </div>
   </div>
 </div>
-![AMON_TOBIN_SOLID_STEEL](https://ninjatune.net/images/releases/solid-steel-presents-amon-tobin-main.jpg)
-![AMON_TOBIN##PERMUTATION##](https://f4.bcbits.com/img/a1983715436_10.jpg)
-[DOWNLOAD_AMON_TOBIN_PERMUTATION_FROM_BANDCAMP](https://music.amontobin.com/album/permutation)
+
+	
+	
 [##THAKA_BEKELE_SELASSIE = ##SULTAN_DROPS##](https://www.youtube.com/watch?v=MbVPev7akDI)
 <div class='twoPanelSpread'>
   <div class='row'>
@@ -1723,23 +1897,8 @@ In early October I saw Coral, in Pasadena, ##California, with a grown man wearin
 <a href="http://www.ericmeyeroncss.com" > <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/BeYonCeHaCkeRs26000.PNG" /><a/>
 <a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_demonstration.jpg?itok=CyDRb7ye" /> </a>
 <a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_city.jpg?itok=MJSd2yw9" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_cluster/bd_cluster_example1.jpg" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_aquatico/bd_aquatico_example1.jpg" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_supper/bd_supper_example1.jpg" /> </a>
+	
 
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_supper/bd_supper_example5.jpg" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_apotheke/bd_apotheke_example1.jpg" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_rainbow/bd_rainbow_example3.jpg" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_rainbow/bd_rainbow_example1.jpg" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_car.jpg?itok=fr33wXWz" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_grave.jpg?itok=zKHQ2_XK" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_demo_tshirt2.jpg?itok=Z-FDybri" /> </a>
-<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_demonstration.jpg?itok=CyDRb7ye" /> </a>
-![NiRVANA_i_APOLOGiZE](https://pbs.twimg.com/media/ELGYaVYUUAIpygF?format=jpg&name=small)
-[CSS Hovers and Rollovers](https://accessibility.psu.edu/css/rollovers/)
-[Law – Unreleased Jungle Selection](https://www.youtube.com/watch?v=h7T8br7jO80)
-[DJ SHARPEY presents, Route Into Darkness - Jungle DNB Mix | 1994 1995 | Vinyl Only](https://www.youtube.com/watch?v=VspuYfZcjQ4)
-[1994 - 2004 Jungle / Drum & Bass Old Skool Mix (Mickey Beam)](https://www.youtube.com/watch?v=PCXuCLbFGo4)
 <img src="https://i.discogs.com/N1EA9fc-ZaWSRoOAd9bV4om8xqjogZUMNzdhZ_JMv3k/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTEwMDgy/MTItMTE4MzQ4NTEx/OC5qcGVn.jpeg" />
 <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/Screenshot%202022-06-27%206.37.45%20AM.png" />
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/uSPHfbHy2Bw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
@@ -1986,6 +2145,33 @@ https://melaniedaveid.com/
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1224900766&color=%23de8b80&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/kaliii" title="Kali" target="_blank" style="color: #cccccc; text-decoration: none;">Kali</a> · <a href="https://soundcloud.com/kaliii/track-1" title="Standards" target="_blank" style="color: #cccccc; text-decoration: none;">Standards</a></div>
 
 ## How to play games in the Internet Arcade
+	
+![AMON_TOBIN_SOLID_STEEL](https://ninjatune.net/images/releases/solid-steel-presents-amon-tobin-main.jpg)
+![AMON_TOBIN##PERMUTATION##](https://f4.bcbits.com/img/a1983715436_10.jpg)
+[DOWNLOAD_AMON_TOBIN_PERMUTATION_FROM_BANDCAMP](https://music.amontobin.com/album/permutation)
+[Spiderman Cartoon-1967 Season 1 Episode 19]([https://youtu.be/aBzotaBgoRo)
+[DELiRiUM:BY::##ELLiE_GOULDING## ##FAV_TRACK## ## ](https://youtu.be/cLWv0f2Tt8E) 
+[DiSCOGS:##ENTRY](https://www.discogs.com/release/8118343-Ellie-Goulding-Delirium)
+## #ZEXOR_WAS_MURDERED_LOOKiNG_FOR_HiS_FAMiLY
+https://forum.12ozprophet.com/topic/88098-rip-zexor/
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/AT-Km8ToCGU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<a href="https://www.youtube.com/c/TapeDeckWreck" target="_blank"> <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/Capture.PNG" alt="##BUBBLEGUM_POP##IS_HERE_TO_STAY" > </a>	
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_cluster/bd_cluster_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_aquatico/bd_aquatico_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_supper/bd_supper_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_supper/bd_supper_example5.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_apotheke/bd_apotheke_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_rainbow/bd_rainbow_example3.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://www.typedifferent.com/fonts/bd_rainbow/bd_rainbow_example1.jpg" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_car.jpg?itok=fr33wXWz" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_grave.jpg?itok=zKHQ2_XK" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_demo_tshirt2.jpg?itok=Z-FDybri" /> </a>
+<a href="https:://typedifferent.com" target="_blank" ><img src="https://burodestruct.net/sites/default/files/styles/bd_wide_2x/public/bd_type1_demonstration.jpg?itok=CyDRb7ye" /> </a>
+![NiRVANA_i_APOLOGiZE](https://pbs.twimg.com/media/ELGYaVYUUAIpygF?format=jpg&name=small)
+[CSS Hovers and Rollovers](https://accessibility.psu.edu/css/rollovers/)
+[Law – Unreleased Jungle Selection](https://www.youtube.com/watch?v=h7T8br7jO80)
+[DJ SHARPEY presents, Route Into Darkness - Jungle DNB Mix | 1994 1995 | Vinyl Only](https://www.youtube.com/watch?v=VspuYfZcjQ4)
+[1994 - 2004 Jungle / Drum & Bass Old Skool Mix (Mickey Beam)](https://www.youtube.com/watch?v=PCXuCLbFGo4)
 [HOW_TO_PLAY_THESE_AWESOME_GAMES - TUTORiAL_HERE##CLiCK](https://armchairarcade.com/perspectives/2014/11/06/quick-guide-on-how-to-play-on-the-internet-arcade/)
 <iframe src="https://archive.org/embed/arcade_nbajamte" width="" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 <iframe src="https://archive.org/embed/arcade_720" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
