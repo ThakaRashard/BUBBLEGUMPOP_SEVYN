@@ -577,7 +577,14 @@ Relative position for absolute caption
 ```
 <img src="https://media.self.com/photos/5991ee1fdc7f316973d3f403/master/pass/sevyn-streeter-1.jpg" alt="##SEVYN_IS_MY_WIFE">
 ## How to play games in the Internet Arcade
-	
+[HOW_TO_PLAY_THESE_AWESOME_GAMES - TUTORiAL_HERE##CLiCK](https://armchairarcade.com/perspectives/2014/11/06/quick-guide-on-how-to-play-on-the-internet-arcade/)
+
+<p class="codepen" data-height="300" data-theme-id="dark" data-default-tab="html,result" data-slug-hash="bGvjMEe" data-editable="true" data-user="web-dot-dev" style="height: 300px; box-sizing: border-box; display: flex; align-items: center; justify-content: center; border: 2px solid; margin: 1em 0; padding: 1em;">
+  <span>See the Pen <a href="https://codepen.io/web-dot-dev/pen/bGvjMEe">
+  Handwritten shopping list with custom markers</a> by web.dev (<a href="https://codepen.io/web-dot-dev">@web-dot-dev</a>)
+  on <a href="https://codepen.io">CodePen</a>.</span>
+</p>
+<script async src="https://cpwebassets.codepen.io/assets/embed/ei.js"></script>
 ![AMON_TOBIN_SOLID_STEEL](https://ninjatune.net/images/releases/solid-steel-presents-amon-tobin-main.jpg)
 ![AMON_TOBIN##PERMUTATION##](https://f4.bcbits.com/img/a1983715436_10.jpg)
 [DOWNLOAD_AMON_TOBIN_PERMUTATION_FROM_BANDCAMP](https://music.amontobin.com/album/permutation)
@@ -604,7 +611,7 @@ https://forum.12ozprophet.com/topic/88098-rip-zexor/
 [Law – Unreleased Jungle Selection](https://www.youtube.com/watch?v=h7T8br7jO80)
 [DJ SHARPEY presents, Route Into Darkness - Jungle DNB Mix | 1994 1995 | Vinyl Only](https://www.youtube.com/watch?v=VspuYfZcjQ4)
 [1994 - 2004 Jungle / Drum & Bass Old Skool Mix (Mickey Beam)](https://www.youtube.com/watch?v=PCXuCLbFGo4)
-[HOW_TO_PLAY_THESE_AWESOME_GAMES - TUTORiAL_HERE##CLiCK](https://armchairarcade.com/perspectives/2014/11/06/quick-guide-on-how-to-play-on-the-internet-arcade/)
+
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1006480420&color=%23607064&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/theclassicmixcdseries" title="The Classic Mix CD Series" target="_blank" style="color: #cccccc; text-decoration: none;">The Classic Mix CD Series</a> · <a href="https://soundcloud.com/theclassicmixcdseries/dj-food-dk-now-listen" title="785 - Solid Steel pres. DJ Food &amp; DK - Now, Listen! (2001)" target="_blank" style="color: #cccccc; text-decoration: none;">785 - Solid Steel pres. DJ Food &amp; DK - Now, Listen! (2001)</a></div>
 <img src="https://cdn.wionews.com/sites/default/files/styles/story_page/public/2021/03/17/187670-untitled-design-34.jpg" alt="Me_and_Sevyn_ENERGY">
 <img src="https://www.goodnewsnetwork.org/wp-content/uploads/2021/04/juno-nasa-jpl-caltech-swri-msss-brian-swift.jpg">
