@@ -580,6 +580,7 @@ Relative position for absolute caption
 # Jekyll_Headings
 
 <hr>
+
 # HEADiNG1
 ## HEADinG2
 ### HEADiNG3
