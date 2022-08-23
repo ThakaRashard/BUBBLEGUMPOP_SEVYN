@@ -584,7 +584,7 @@ Relative position for absolute caption
 <img src="https://e7.pngegg.com/pngimages/32/535/png-clipart-dig-dug-ii-namco-museum-sky-kid-pac-land-dig-dug-text-logo.png" alt="##BABEE_MAYKiN_IS_ABOWTTAH_COMMINCE">
 <img src="https://arcademarquee.com/wp-content/uploads/2015/02/dig-dug_marquee-scaled.jpg">
 <iframe src="https://archive.org/embed/arcade_digdug" width="100%" height="500" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
-<img src="http://adb.arcadeitalia.net/media/mame.current/marquees/paperboy.png">
+<img src="http://adb.arcadeitalia.net/media/mame.current/marquees/paperboy.png?release=205">
 
 <iframe src="https://archive.org/embed/arcade_paperboy" width="100%" height="450" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 
