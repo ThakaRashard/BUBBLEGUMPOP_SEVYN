@@ -581,6 +581,9 @@ Relative position for absolute caption
 ## How to play games in the Internet Arcade
 
 [HOW_TO_PLAY_THESE_AWESOME_GAMES - TUTORiAL_HERE##CLiCK](https://armchairarcade.com/perspectives/2014/11/06/quick-guide-on-how-to-play-on-the-internet-arcade/)
+<img src="https://e7.pngegg.com/pngimages/32/535/png-clipart-dig-dug-ii-namco-museum-sky-kid-pac-land-dig-dug-text-logo.png" alt="##BABEE_MAYKiN_IS_ABOWTTAH_COMMINCE">
+<img src="https://arcademarquee.com/wp-content/uploads/2015/02/dig-dug_marquee-scaled.jpg">
+<iframe src="https://archive.org/embed/arcade_digdug" width="100%" height="500" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 <img src="http://adb.arcadeitalia.net/media/mame.current/marquees/paperboy.png">
 
 <iframe src="https://archive.org/embed/arcade_paperboy" width="100%" height="450" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
